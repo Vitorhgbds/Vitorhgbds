@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+
+  ![Snake animation](https://github.com/Vitorhgbds/Vitorhgbds/blob/output/github-contribution-grid-snake.svg)
+
 <!--
 **Vitorhgbds/Vitorhgbds** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
