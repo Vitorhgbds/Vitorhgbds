@@ -1,8 +1,8 @@
-### Hello sr(a)! 🧐 
+### Hello there! 🧐 
 
-Please take this pill  <img src="https://emoji.gg/assets/emoji/Redpill.png" alt="redpill" width="20"/> and let's drink some coffee ☕ while we are learning together
+let's drink some coffee ☕ while we are learning
 
-making it easier, my pronouns are he/him what's yours?
+For starters, my pronouns are he/him, what are yours?
 
 now playing 🎶 Money - pink floyd 🎶
 
